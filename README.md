@@ -1,1 +1,1 @@
-# sonuprofil
+https://github.com/gauraviiita/Gaurav-Profile/blob/main/README.md#gaurav-profile
